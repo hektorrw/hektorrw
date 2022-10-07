@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on java projects
 - 📫 How to reach me on twitter @HectorPaskal
 -  Lets connect on discord also 
+- I like to read books and walk in the beach 
 
 <!---
 hektorrw/hektorrw is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
